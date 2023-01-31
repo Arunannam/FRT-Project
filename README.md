@@ -9,7 +9,7 @@ Project Link - https://green-grass-0e0807100.2.azurestaticapps.net
 
 
 
-Project demo video link  -  
+Project demo video link  - https://www.youtube.com/watch?v=yrZACq0Wjmk&t=15s  
 
 
 
